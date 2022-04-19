@@ -9,4 +9,5 @@
  * 📱 +130k on Social Media
 
 <br/>
-⚠ Constructions Ahead! 👷‍♂️
+<p align="center">
+⚠ Constructions Ahead! ⚠
