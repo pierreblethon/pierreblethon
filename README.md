@@ -1,4 +1,4 @@
-## Welcome on my GitHub profile! 👀
+## Welcome to my GitHub profile! 👀
 
 #### A little bit about me:
  * 🥖 French
