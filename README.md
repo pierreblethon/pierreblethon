@@ -2,6 +2,12 @@
 
 Here are some ideas to get you started:
 
+ * 🥖 French
+ * 🚀 Aerospace Engineer
+ * 👨‍🎓 Master's in Management + Big Data & Business Analytics
+ * 🏎 Car Addict
+ * 📱 +130k on Social Media
+
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
