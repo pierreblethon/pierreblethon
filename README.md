@@ -6,7 +6,7 @@
  * 👨‍🎓 Master's in Management + Big Data & Business Analytics
  * 🌍 Globetrotter (lived in 7 countries, visited +30)
  * 🏎 Cars Addict
- * 📱 +130k on Social Media
+ * 📱 +130k followers on Social Media
 
 <br/>
 <p align="center">
